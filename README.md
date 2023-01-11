@@ -1,4 +1,4 @@
-### Oie, meu nome é Sara! 😊
+### Oie, meu nome é Sara!💕
 
 Aprendendo front-end!🌼 
 
